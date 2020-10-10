@@ -1,1 +1,1 @@
-# evolnomore
+# evolnomore an eventual NGO which means I chargeno money formy services but i get no governmental funding so any money I have is gained thru my own personal funds donations fundraising and merch sales
